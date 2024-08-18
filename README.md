@@ -3,7 +3,7 @@
 
 ![GitHub_Image](https://cdn-images.imagevenue.com/35/d8/ce/ME18Q53Y_o.png)
 
-So, I have 3 years of experience in Electrical Construction & Transmission lines as an Electrical Site Engineer & presently I am working in JSPL (Volttech Groups) as an Electrical Engineer.
+So, I have 4 years of experience in Electrical Construction & Transmission lines as an Electrical Site Engineer & presently I am working in JSPL (Volttech Groups) as an Electrical Engineer.
 
 - 🔭 I’m currently an Electrical Engineer. 
 - 🎓 I’m currently a Graduate student in B.Tech (EE) - 2017 - 2020 Batch (CSVT University, Bhilai (C.G))
